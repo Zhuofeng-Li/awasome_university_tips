@@ -1,0 +1,1 @@
+# awasome_university_tips
